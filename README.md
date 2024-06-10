@@ -6,6 +6,5 @@ I'm Guilherme de Oliveira
 - 👯 I’m looking to collaborate on project using data analyst 
 - 💬 Ask me about Finance 
 - 📫 How to reach me: sthefer@icloud.com  
-- 😄 Pronouns: He/His
 - ⚡ Fun fact: Finance guy passionate in Tech and Boxing 
 
